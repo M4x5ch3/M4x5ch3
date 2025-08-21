@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @M4x5ch3
 - 👀 I'm interested in Gaming, Anime and Sports
-- 🌱 I’m currently learning Game Development at a university in Germany
+- 🌱 I’m currently working at a company in germany
